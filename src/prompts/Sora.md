@@ -1,0 +1,2 @@
+A humanoid AI robot sitting in a podcast studio like an interviewed person. The shot is framed from the interviewer’s point of view: a half-body shot, showing the robot’s crossed leg and a table in front of its torso. The robot is looking slightly away from the camera, as if speaking to someone on the side, but that person is never shown. The background is a shelf filled with nerdy objects, including a small DIO trophy miniature. Warm studio lighting, realistic details, cinematic composition.
+
